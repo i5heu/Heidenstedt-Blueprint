@@ -101,7 +101,8 @@ Eat Breakfast and Lunch in a 4h window, and fast for the remaining 20h.
 7. **Optional Protein Boost**: If desired, add 30-60 grams of pea protein for an extra protein boost.
 8. **Optional Sweeteners**: For an extra treat, add a tablespoon of Trehalose and a tablespoon of Manuka honey.
 
-
+> Note: Macadamia nut milk is not available in most stores, so I used almond milk instead.
+> Note 2: Nuts and Flaxseed don't need to be ground, they can be blended as whole.
 
 
 ## Exercise
